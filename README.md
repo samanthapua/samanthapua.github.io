@@ -1,1 +1,3 @@
-# samanthapua.github.io
+# Samantha
+
+##### Business Intelligence
